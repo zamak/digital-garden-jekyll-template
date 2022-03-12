@@ -7,7 +7,7 @@ permalink: /
 
 # Dobrodošli! 🌱
 
-<p style="padding: 3em 1em; background: #938e95; border-radius: 4px;">
+<p style="padding: 3em 1em; background: #e2b585; border-radius: 4px;">
   Take a look at <span style="font-weight: bold">[[Your first note]]</span> to get started on your exploration.
 </p>
 
