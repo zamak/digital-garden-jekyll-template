@@ -1,7 +1,3 @@
----
-title: Sadržaj
----
-
 # Sadržaj
 *Pregled vrta*
 
@@ -37,5 +33,6 @@ title: Sadržaj
 	- [[Filozofija]]
 	- [[Psihologija]]
 	- [[Korisno]]
+	
 ---
 
