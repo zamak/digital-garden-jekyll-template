@@ -1,8 +1,9 @@
 ---
+title: Sadržaj
 ---
 
-# Početna
-*Svi putovi vode na početnu*
+# Sadržaj
+*Pregled vrta*
 
 ### Mape
 - **Teologija**
