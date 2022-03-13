@@ -1,6 +1,7 @@
 ---
 title: Nutarnja molitva
 ---
+
 Kada [[Katekizam]] Katoličke Crkve govori o nutarnjoj molitvi (2706) tada citira riječi sv. Terezije Avliske koja kaže: "Po mojem mišljenju unutarnja molitva nije drugo, nego prijateljski razgovor, da se često razgovaramo nasamo s onim, za koga znamo, da nas ljubi." Dakle, nutarnja molitva je razgovor, dijalog s Bogom, a razgovor pretpostavlja ne samo govorenje, nego i slušanje, šutnju, razmišljanje, govor tijela i gledanje onoga s kim razgovaramo. Terezija kaže da je to intiman razgovor, "nasamo", s onim za koga znamo da nas ljubi i da nas prihvaća takve kakvi jesmo. Pred njim možemo biti potpuno slobodni, potpuno svoji. Sad ovo primijenite na svaku molitvu koju izgovarate. Da li to opisuje vašu molitvu ili ne?
   
  U knjizi Put k savršenosti Terezija nam daje još detaljniji opis nutarnje molitve:
