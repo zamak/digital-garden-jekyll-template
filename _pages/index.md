@@ -12,7 +12,7 @@ permalink: /
 </p>
 
 Zašto ići daleko tražiti iskustvo božanskoga, kada je Bog, koji je sama Ljubav, prisutan u najdubljemu dijelu našega srca?
-<a class="internal-link" href="/😀">This is a link to the note about cats with HTML</a>
+<a class="internal-link" href="/sretno">This is a link to the note about cats with HTML</a>
 <style>
   .wrapper {
     max-width: 46em;
