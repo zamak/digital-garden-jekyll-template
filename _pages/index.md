@@ -13,6 +13,10 @@ permalink: /
 
 Zašto ići daleko tražiti iskustvo božanskoga, kada je Bog, koji je sama Ljubav, prisutan u najdubljemu dijelu našega srca?
 
+<p style="padding: 3em 1em; background: #e2b585; border-radius: 4px;">
+  Kako se danas osjećaš? <span style="font-weight: bold">[[😀]]</span>
+</p>
+
 <style>
   .wrapper {
     max-width: 46em;
