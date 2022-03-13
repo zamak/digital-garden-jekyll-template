@@ -1,1 +1,3 @@
-# Koji je cilj nutarnje molitve?
+---
+title: Cilj nutarnje molitve
+---
