@@ -1,0 +1,13 @@
+U knjizi Moj život, Terezija kaže da onaj tko započinje s molitvom, može zamisliti kako sadi vrt i to na neplodnoj zemlji koja je obrasla korovom i "zlim travama". Da bi taj vrt učinio lijepim za Gospodina, počinje saditi dobre i lijepe biljke i čupati korov. Dakle, čim je duša započela s molitvenim životom, ovo je već napravljeno u vrtu njene duše. E, sad dolazi ono ključno, a to je: treba se svaki dan brinuti o vrtu, zalijevati ga, nastaviti čupati korov kad ponovno izraste, obrezivati biljke, saditi cvjetove (kreposti) koji će ispuštati miris ugodan Gospodinu, tako "da se često puta dođe naslađivati u ovaj vrt i uživati među ovim krepostima." (MŽ 11,6)
+
+No, kako zalijevati ovaj vrt? Što treba činiti? Koliko će nas vremena i truda stajati? Kaže ona da se ovaj vrt može zalijevati na četiri načina: 
+1. "izvlačeći vodu iz zdenca, što nam zadaje velik trud"
+2. "s pomoću dolapa i zaimača, gdje se izvlači uz pomoć kotača; ja sam tako izvlačila nekoliko puta; iziskuje manje truda i izvlači se više vode" 
+3. "iz rijeke ili potoka; tako se bolje zalijeva, jer zemlja postaje bolje natopljena vodom i nije potrebno zalijevati tako često, te to iziskuje puno manje truda za vrtlara"
+4. "ako puno kiši, jer vrt zalijeva Gospodin bez ikakva našeg truda i neusporedivo je bolje od svega što je spomenuto." (MŽ 11,7)
+
+No, kako ovo primjeniti na vlasiti duhovni život? 
+
+Oni koji tek počinju moliti su kao oni koji na ruke izvlače vodu iz zdenca i za to je potreban velik napor. Pošto su dugo živjeli bez molitve i nikada nisu sabirali svoje misli, sada im je to jako teško. Sjećam se jednog dokumentarnog filma u kojem su takve ljude doveli u benediktinski samostan i rekli im da tri dana moraju šutjeti. Bilo im je jako teško, neki nisu izdržali ni jedan dan. Oni rijetki koji su ustrajali, doživjeli su duhovno iskustvo i donijeli dobre odluke. Odlučili su, svaki dan, pronaći trenutke šutnje i molitve. Terezija kaže da takvi moraju biti kao oni koji ne vide i ne čuju. To znači zatvoriti prozore i vrata svoje duše, tražiti tišinu i vježbati se u sabranosti. "Moraju nastojati razmišljati o Kristovu životu, a time se zamori razum." (MŽ 11,9)
+
+Moramo učiniti ono što je do nas, ako želimo napredovati na putu molitve. Ako Gospodin unatoč naših napora oko brige za vrt pošalje suhoće i presuši zdenac, "radimo li ono što je do nas kao dobri vrtlari, on će i bez vode održati cvijeće i učiniti da rastu kreposti. Ovdje »vodom« nazivam suze te, makar ih ne bude, skrušenost i unutarnji osjećaj pobožnosti." (MŽ 11,9)

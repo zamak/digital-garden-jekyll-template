@@ -1,0 +1,1 @@
+# Koji je cilj nutarnje molitve?

@@ -11,11 +11,7 @@ permalink: /
   "Brineš se i uznemiruješ za mnogo, a jedno je potrebno. Marija je uistinu izabrala <span style="font-weight: bold">[[bolji dio]]</span> koji joj se neće oduzeti."
 </p>
 
-No, pogledajmo sada načine na koje se može zalijevati kako bismo shvatili što trebamo činiti i koliko će nas truda stajati te je li on veći od dobitka i koliko će vremena potrajati. Meni se čini da se može zalijevati na četiri načina:
-- ili izvlačeći vodu iz zdenca, što nam zadaje velik trud
-- ili s pomoću bunara i vjedra, gdje se izvlači uz pomoć kotača; ja sam tako izvlačila nekoliko puta; iziskuje manje truda i izvlači se više vode
-- ili iz rijeke ili potoka; tako se bolje zalijeva jer zemlja postaje bolje natopljena vodom i nije potrebno zalijevati tako često, te to iziskuje puno manje truda za vrtlara
-- ili pak ako puno kiši, jer vrt zalijeva Gospodin bez ikakva našeg truda i neusporedivo je bolje od svega što je spomenuto. 💧
+Zašto ići daleko tražiti iskustvo božanskoga, kada je Bog, koji je sama Ljubav, prisutan u najdubljemu dijelu našega srca?
 
 <style>
   .wrapper {
