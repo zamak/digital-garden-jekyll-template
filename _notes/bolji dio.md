@@ -1,3 +1,6 @@
+---
+title: Nutarnja molitva
+---
 Kada [[Katekizam]] Katoličke Crkve govori o nutarnjoj molitvi (2706) tada citira riječi sv. Terezije Avliske koja kaže: "Po mojem mišljenju unutarnja molitva nije drugo, nego prijateljski razgovor, da se često razgovaramo nasamo s onim, za koga znamo, da nas ljubi." Dakle, nutarnja molitva je razgovor, dijalog s Bogom, a razgovor pretpostavlja ne samo govorenje, nego i slušanje, šutnju, razmišljanje, govor tijela i gledanje onoga s kim razgovaramo. Terezija kaže da je to intiman razgovor, "nasamo", s onim za koga znamo da nas ljubi i da nas prihvaća takve kakvi jesmo. Pred njim možemo biti potpuno slobodni, potpuno svoji. Sad ovo primijenite na svaku molitvu koju izgovarate. Da li to opisuje vašu molitvu ili ne?
   
  U knjizi Put k savršenosti Terezija nam daje još detaljniji opis nutarnje molitve:
@@ -10,9 +13,9 @@ Kad kažemo "nutarnja molitva", to ne znači da šutimo i molimo u sebi. Naproti
 
 >Tko može reći da je loše, ako počnemo moliti Časoslov ili krunicu, promisli li s kime će se razgovarati i tko je onaj tko govori, zato da vidi kako će Mu se obraćati? Ja vam kažem, kćeri, kada bi se dobro učinilo sve što treba učiniti, zato da se shvati ove dvije točke, prije nego počnete s usmenom molitvom koju ćete izgovarati, dobro bi se učinilo da provedete puno vremena u misaonoj [nutarnjoj]. Da, jer ne možemo doći razgovarati s kraljevićem onako nemarno kao s kakvim seljakom ili kao s nekom jadnicom, kakve smo mi, jer kako god govorili s nama, dobro je. (PKS 22,3)
 
-Ako ćemo uzeti sliku trsa i loze onda možemo reći da je nutarnja molitve sok koji dolazi iz korijena preko trsa u loze, te ih oživljuje i čini da daju plod. Loze su svi drugi oblici molitve. Nutarnja je molitva duša svake druge molitve. Ona je susret dviju ljubavi, a ta ljubav se izražava na više načina. Terezija koristi i tri slike da nam to protumači: [[Mistični vrt]], [[nutarnji zdudov svilac tj. leptiramak]] i [[dudov svilac tj. leptir]].
+Ako ćemo uzeti sliku trsa i loze onda možemo reći da je nutarnja molitve sok koji dolazi iz korijena preko trsa u loze, te ih oživljuje i čini da daju plod. Loze su svi drugi oblici molitve. Nutarnja je molitva duša svake druge molitve. Ona je susret dviju ljubavi, a ta ljubav se izražava na više načina. Terezija koristi i tri slike da nam to protumači: [[Mistični vrt]], [[nutarnji zamak]] i [[dudov svilac tj. leptir]].
 
->"Dijete će izraziti svoju ljubav prema Isusu poljupcem, osmjehom gledajući tabernakul, brižljivosti prema Djetešcu Isusu, tugom kad ugleda raspelo. Mladić ili djevojka će Mu otpjevati pjesmu ili slikama koje će potaknuti imaginaciju i osjećaje prema Isusu, dok intelekt još ne bude mogao izgraditi snažne misli koje će formirati još  duhovniju i sadržajniju molitvu." (IWTSG, 55.)
+>Dijete će izraziti svoju ljubav prema Isusu poljupcem, osmjehom gledajući tabernakul, brižljivosti prema Djetešcu Isusu, tugom kad ugleda raspelo. Mladić ili djevojka će Mu otpjevati pjesmu ili slikama koje će potaknuti imaginaciju i osjećaje prema Isusu, dok intelekt još ne bude mogao izgraditi snažne misli koje će formirati još  duhovniju i sadržajniju molitvu.
 
 Ili ako se osjećamo toliko dirnuti da su nam riječi nepotrebne, nutarnju molitvu možemo vršiti na način na koji je to činio jedan od župljana svetoga Ivana Marije Vianneyja. Sjedio bi ispred svetohraništa, pričao je sveti Ivan, govoreći: “Ja gledam njega, a on gleda mene.”
 
