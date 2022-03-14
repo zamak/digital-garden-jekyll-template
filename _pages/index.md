@@ -13,7 +13,7 @@ permalink: /
 
 Zašto ići daleko tražiti iskustvo božanskoga, kada je Bog, koji je sama Ljubav, prisutan u najdubljemu dijelu našega srca?
 
-Kako se danas osjećaš? <a class="internal-link" href="/radosno">😀</a>
+Osjećam se <a class="internal-link" href="/radosno">😀</a> <a class="internal-link" href="/tužno">🙁</a>
 <style>
   .wrapper {
     max-width: 46em;
